@@ -1,3 +1,3 @@
-# artwork-wallpapers-maui-2
+# artwork-wallpapers-maui-1
 
-Fish wallpaper
+Aurora Wallpaper
